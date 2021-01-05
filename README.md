@@ -30,6 +30,6 @@ For insance, 1 pk could be worth 3€ in one day, but if lots of people start t
 
 I would love to hear your thoughts on this.
 
-If you want you can send me a private message at (t.me/esfoliante), create an issue or even send me an e-mail at miguel.personal@protonmail.com.
+If you want you can send me a private message through [Telegram](t.me/esfoliante), create an issue or even send me an e-mail at miguel.personal@protonmail.com.
 
 Looking forwad to hearing your ideas!
